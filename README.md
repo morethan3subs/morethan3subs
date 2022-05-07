@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @morethan3subs
-- 👀 I’m interested in... shit like minecraft  guess... minerl is pretty cool
-- 🌱 I’m currently learning uhh to teach myself to co...  ooh look a bird
-- 💞️ I’m looking to collaborate on nothing much
-- 📫 How to reach me:  pls dont. but if you want I use discord
+Kinda wierd why you read this - I like Java and work for drealth as of writing this.
